@@ -1,6 +1,6 @@
 # Syngenta
 
-<img src="# JustDial-clone
+
 
 
 
